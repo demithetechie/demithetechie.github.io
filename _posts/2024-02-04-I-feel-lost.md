@@ -22,9 +22,9 @@ From writing online, to creating videos and building this nice online community,
 
 I could apply this creativity to new areas. 
 
-• Crocheting
-• Hairdressing
-• Designing solutions that solve problems.
+- Crocheting
+- Hairdressing
+- Designing solutions that solve problems.
 
 Ultimately, I’ve always been a creative.
 
